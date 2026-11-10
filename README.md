@@ -213,4 +213,4 @@ Arcania: Gothic 4 is offered as a full free version, ensuring all features and u
 Ready to embark on your epic RPG adventure? Download Arcania: Gothic 4 today and immerse yourself in a world of magic and adventure!
 
 ---
-**Last updated:** 2026-11-10 12:21:56 UTC
+**Last updated:** 2026-11-10 20:22:35 UTC
